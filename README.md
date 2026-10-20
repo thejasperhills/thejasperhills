@@ -5,12 +5,12 @@ MS in Data Science from Columbia, former Alibaba analyst, AI builder and evangel
 Based in Shanghai, China.
 
 
-#### Mission
+### Mission
 
 Marketing drives product, AI fuels productivity.
 
 
-#### Life Philosophy
+### Life Philosophy
 
 Employment: Earn "fuck you money" covering 10-year basic living expenses (✅ Done, age 29)
 
