@@ -1,49 +1,20 @@
-## About Me ⛰️
+## Jasper Hills ⛰️
 
-这是一个崭新的开始
+MS in Data Science from Columbia, former Alibaba analyst, AI builder and evangelist. 
 
-写在2026年10月，今年我29岁，明年就是30岁，将进入一个新的十年。
-
-
-## 0-6岁：童年
-
-出生于1997年，三线小城市。
-
-从小比同龄人聪明好学，用我妈的话讲，学说话比别人快三个月，学算术别人数到10我数到20。
+Based in Shanghai, China.
 
 
-## 7-24岁：学校
+#### Mission
 
-三线小城市完成小学至初中学业，成绩优异，基本维持年纪前10；
-
-高中从三线小城市转入天津，参加高考进入南开大学，攻读心理学学士；
-
-毕业后进入美国哥伦比亚大学，攻读数据科学硕士。
-
-疫情缘故，毕业后直接回国，没有留在美国继续生活。
+Marketing drives product, AI fuels productivity.
 
 
-## 24-29岁：职场
+#### Life Philosophy
 
-校招进入阿里巴巴，在淘宝担任策略分析师，在职4年，绩效优异，晋升1次；
+Employment: Earn "fuck you money" covering 10-year basic living expenses (✅ Done, age 29)
 
-跳槽进入得物，担任数据分析师，在职1年，涨薪30%。
-
-在职期间很少出国旅行，不购买奢侈品，无房车负担，未婚未育。
-
-工作5年离职，29岁，攒够足够维持十年基本开销的fuck you money。
+Self-Ownership: AI + Self-Media + ETF DCA + Early Riser Club (🚀 In progress, age 30)
 
 
-## 29岁+：此刻
 
-### 关于为什么离开职场：
-
-1）在名校、大厂平台光环远大于个人，难以积累个人影响力；绩效优先、流程正义，难以完成独立的可盈利商业闭环；工时长压力大，兼职创业进展缓慢；
-
-2）2022年底AI出现，发展至2024年强烈冲击古法编程，传统互联网成为“老登”业务，工作环境急剧恶化，无效工作显著增加；
-
-3）AI将迎来技术到应用转换点，此时入场，吃下一个十年的早期入局红利。
-
-### 关于未来生活怎么过：
-
-Vibe Coding + 自媒体 + 健身 + 践行早起（暂定7点）
