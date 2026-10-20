@@ -14,7 +14,7 @@ Marketing drives product, AI fuels productivity.
 
 Employment: Earn "fuck you money" covering 10-year basic living expenses (✅ Done, age 29)
 
-Self-Ownership: AI + Self-Media + ETF DCA + Early Riser Club (🚀 In progress, age 30)
+Self-Ownership: AI + Self-Media + ETF DCA + Early Riser Club (🚀 In progress)
 
 
 
