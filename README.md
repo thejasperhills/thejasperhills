@@ -10,7 +10,7 @@ Marketing drives product, AI fuels productivity.
 
 ### Life Philosophy
 
-Employment: Earn "fuck you money" covering 10-year basic living expenses (✅ Done, age 29)
+Employment: Earn a 1M RMB "fuck you money" (✅ Done, age 29)
 
 Self-Ownership: AI + Self-Media + ETF DCA + 7AM Club (🚀 In progress)
 
