@@ -12,7 +12,7 @@ Marketing drives product, AI fuels productivity.
 
 Employment: Earn a 1M RMB "fuck you money" (✅ Done, age 29)
 
-Self-Ownership: AI + Self-Media + ETF DCA + 7AM Club (🚀 In progress)
+Self-Ownership: Vibe Coding + Content Creation + ETF DCA + 7AM Club (🚀 In progress)
 
 
 
